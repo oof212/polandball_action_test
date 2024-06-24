@@ -1,2 +1,2 @@
 # polandball_action_test
-watch steins gate
+you should watch steins gate
